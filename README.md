@@ -1,0 +1,1 @@
+# historico-salario-e-ipca
